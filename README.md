@@ -24,7 +24,7 @@
         
 ### :man_technologist: About me:
 
-• I consider my soft skills: the ability to easily find a language with others, adaptability. I also easily organize processes within the team. ability to work both in a team and independently
+• I consider my soft skills: the ability to easily find a language with others, adaptability. I also easily organize processes within the team. Ability to work both in a team and independently
 
 • I am interested in a company with the possibility of self-realization, self-improvement, career growth, with a decent salary.
 
