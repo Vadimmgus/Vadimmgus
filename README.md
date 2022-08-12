@@ -4,7 +4,7 @@
   </a>
 </div> -->
 
-<a href="https://t.me/gorbunov_i_e">
+<a href="https://t.me/VadVgus">
   <img align="left" alt="Telegram" width="22px" src="https://camo.githubusercontent.com/5c1975da7d9ab735ceb71c57b6c7e48ff3e08ca4/68747470733a2f2f6564656e742e6769746875622e696f2f537570657254696e7949636f6e732f696d616765732f7376672f74656c656772616d2e737667">
 </a>
 
@@ -24,7 +24,7 @@
         
 ### :man_technologist: About me:
 
-• I consider my soft skills: the ability to easily find a language with others, adaptability. I also easily organize processes within the team. Ability to work in a team
+• I consider my soft skills: the ability to easily find a language with others, adaptability. I also easily organize processes within the team. ability to work both in a team and independently
 
 • I am interested in a company with the possibility of self-realization, self-improvement, career growth, with a decent salary.
 
